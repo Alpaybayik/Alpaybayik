@@ -16,7 +16,7 @@
 
 - 👨‍💻 All of my projects are available at **[https://ideavent.tr](https://ideavent.tr)**
 
-- 📄 Know about my experiences **[https://drive.google.com/file/d/1Up8FzkRDycMcdlfZtYwwCh8Inu7RPdpu/view?usp=drive_link](https://drive.google.com/file/d/1Up8FzkRDycMcdlfZtYwwCh8Inu7RPdpu/view?usp=drive_link)**
+- 📄 Know about my experiences **[https://drive.google.com/file/d/1Up8FzkRDycMcdlfZtYwwCh8Inu7RPdpu/view?usp=drive_link](cv)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
